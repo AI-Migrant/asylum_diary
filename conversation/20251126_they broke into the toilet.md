@@ -119,7 +119,7 @@ I have copied Helena Letman, who is in charge of the club, into this email, so t
 
 Best wishes,
 
-Fr **
+Fr ——
 
 ---
 
@@ -134,15 +134,15 @@ I would like to have another breakfast in your basement this coming Wednesday if
 ---
 On Tue, 2 Dec 2025, 09:17 COMPANIONS SAFEGUARDING OFFICER
 
-Dear **,
+Dear ——,
 
  
 
-Thank you for your email of yesterday (1 December, timed at 13.20hrs) which was addressed to Fr. ** at Golden Square.  Your email was subsequently forwarded to me, as the Safeguarding Officer of ***, and also to ******, the Chairman of ******.  As you know, the *** run the breakfast club at Golden Square which I understand you attended last Wednesday (26 November).  I have copied Fr. ** and Mr ** on this reply email.
+Thank you for your email of yesterday (1 December, timed at 13.20hrs) which was addressed to Fr. —— at Golden Square.  Your email was subsequently forwarded to me, as the Safeguarding Officer of ———, and also to ——————, the Chairman of ——————.  As you know, the ——— run the breakfast club at Golden Square which I understand you attended last Wednesday (26 November).  I have copied Fr. —— and Mr —— on this reply email.
 
  
 
-I have received a full report of the events at the breakfast club last Wednesday and can confirm, in response to the question you raised in your email of 1 December, that the people who knocked on the door of the WC which you were occupying at the breakfast club on 26 November, and who were then involved in the exchanges with you that followed, are all regular volunteers with ****** at our breakfast club in Golden Square.
+I have received a full report of the events at the breakfast club last Wednesday and can confirm, in response to the question you raised in your email of 1 December, that the people who knocked on the door of the WC which you were occupying at the breakfast club on 26 November, and who were then involved in the exchanges with you that followed, are all regular volunteers with —————— at our breakfast club in Golden Square.
 
  
 
@@ -160,9 +160,9 @@ Assuring you of our best intentions.
 
 Yours,
 
-**
+—— ——
 
-Safeguarding Officer for ******
+Safeguarding Officer for ————
 
 ---
 2 Dec 2025, 15:27 Me
