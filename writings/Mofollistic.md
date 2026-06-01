@@ -20,7 +20,7 @@ They belittle you for years, sabotage your self-worth, then tell others how prou
 ---
 
 **Me**\
-Talk about coining word, I actually have attempted. It's mofollistic: motherfuckerly/motherfuckingly sick. I chose double l for british style and - "listic" in place of "sick" to make it like a real word while sounding similarly.
+Talk about coining word, I actually have attempted. It's mofollistic: mofolly/mfly sick. I chose double l for british style and - "listic" in place of "sick" to make it like a real word while sounding similarly.
 
 ---
 
@@ -52,7 +52,7 @@ Absolutely — here's a punchy, well-structured submission you could use to add 
 **Word:** mofollistic\
 **Part of Speech:** adjective\
 **Pronunciation:** /ˌmoʊ.fəˈlɪs.tɪk/\
-**Origin:** Coined by blending “motherfuckingly” and “sick,” with British-style double “l” and the suffix “-listic” to evoke systemic or philosophical descriptors (e.g., “nihilistic,” “sadistic”).\
+**Origin:** Coined by blending “mofolly” and “sick,” with British-style double “l” and the suffix “-listic” to evoke systemic or philosophical descriptors (e.g., “nihilistic,” “sadistic”).\
 **Definition:**\
 Describes something so grotesquely cruel, strategically harmful, or morally obscene that it transcends ordinary wrongdoing — a kind of engineered sickness disguised as care, often inflicted by systems or individuals who suppress the damage to make it look less serious.\
 **Usage:**\
@@ -76,13 +76,13 @@ Hell yes — let’s give “mofollistic” the Urban Dictionary treatment it d
 adjective\
 **Pronounced:** mo-foh-LISS-tik\
 **Definition:**\
-So motherfuckingly sick, twisted, and strategically cruel that it makes regular evil look like amateur hour. Not just messed up — mofollistic is when someone (or some system) hurts you, hides the damage, and pretends it’s all fine. It’s harm with a cover-up. It’s pain dressed up as care. It’s gaslighting with a scalpel.\
+So mofolly sick, twisted, and strategically cruel that it makes regular evil look like amateur hour. Not just messed up — mofollistic is when someone (or some system) hurts you, hides the damage, and pretends it’s all fine. It’s harm with a cover-up. It’s pain dressed up as care. It’s gaslighting with a scalpel.\
 **Usage:**\
 - “They broke me, patched me up just enough to keep me crawling, then did it again. That’s mofollistic.”
 - “This whole setup is mofollistic as hell — like they planned the suffering and rehearsed the denial.”
 - “You think that’s bad? Nah, that’s just rude. Mofollistic is when they smile while they ruin you.”
 **Origin: **\
-Coined by someone too smart and too pissed to settle for “motherfuckingly sick.” British-style double “l” for extra class, “-listic” to make it sound legit — like “nihilistic,” but with more venom.\
+Coined by someone too smart and too pissed to settle for “mofolly sick.” British-style double “l” for extra class, “-listic” to make it sound legit — like “nihilistic,” but with more venom.\
 **Tags:** evil, gaslighting, systemic cruelty, poetic rage, neologism, British spelling, moral sickness
   
 Want to add a companion term for the people or systems that do mofollistic things? Something like “mofollist” or “mofollarchy”? I’m game to build a whole damn lexicon with you.
@@ -121,7 +121,7 @@ A nonprofit raises millions “to fight hunger,” but spends it on luxury retre
    > “They didn’t just steal the food. They stole the story. That’s mofollistic.”
 2. **The Wellness Cult That Breaks You to Heal You**\
 A “healing retreat” promises spiritual renewal. They deprive you of sleep, isolate you, gaslight your trauma, then sell you overpriced crystals and therapy sessions to “fix” the damage they caused.
-   > “They call it transformation. I call it mofollistic mindfuckery.”
+   > “They call it transformation. I call it mofollistic mind-fery.”
 3. **The Boss Who Burns You Out, Then Sends You a Mindfulness App**
 You’re working 80-hour weeks, getting screamed at in meetings, and your health is tanking. HR sends you a link to a meditation app and a coupon for herbal tea.
    > “That’s not support. That’s mofollistic corporate sadism.”
