@@ -16,15 +16,13 @@ Some profound sicknesses are hidden in plain sight in our societies.
 
 ---
 
-A thought crossed my mind quite a while ago. Worthlessness means the absence of shame. Why do we need the word worthlessness when something simply doesn’t exist?
+A thought crossed my mind quite a while ago. Worthlessness means the absence of shame. Why do we need a word for something that simply doesn’t exist?
 
-Because worthlessness can be worse than zero, similar to the ‘huge pettiness’ I have written about. Worthlessness can be so paradoxically great that it becomes nullifying. It doesn’t simply equate to nothing. It recruits others into the same mechanism. Together, they form an apparatus to exploit, undermine and punish those who are different. When they stop working and normality resumes, they claim the difference in the absence of their ‘contribution’ as what they create.
-
-https://github.com/AI-Migrant/asylum_diary/blob/main/writings/Global%20Prettiness.md
+Because worthlessness can be worse than zero, similar to the ‘[huge pettiness](https://github.com/AI-Migrant/asylum_diary/blob/main/writings/Global%20Prettiness.md)’ I have written about. Worthlessness can be so paradoxically much that it becomes nullifying. It doesn’t simply equate to nothing. It recruits others into the same mechanism. Together, they form an apparatus to exploit, undermine and punish those who are different. When they stop working and normality resumes, they claim the difference in the absence of their ‘contribution’ as what they create.
 
 Similarly, shamelessness can go beyond the non-existence of one’s own shame. Shamelessness can be so great, especially when compounded by power, that it becomes contagious. It becomes a societal cancer that spreads subtly but almost unstoppably. And when the symptoms manifest, the cancer is already so widespread that it seems we can no longer call it abnormal.
 
-If you doubt the account of my persecution I have been recording in my GitHub repositories over the year, think about how even the crimes mentioned above have been possible while people can be monitored, stalked, and subjected to further crimes, often for the sick satisfaction of the surveyors.
+If you doubt the account of my persecution I have been recording in my GitHub repositories over the year, think about how even the crimes mentioned above have been possible while people can be monitored, stalked, and subjected to further crimes, often for the sick entertainment of the surveyors.
 
 https://github.com/AI-Migrant/asylum_diary/
 
@@ -35,3 +33,5 @@ https://github.com/AI-Migrant/persecuted-documents/
 https://github.com/AI-Migrant/persecuted-media-files/
 
 Use the pattern https://github.com/AI-Migrant/persecuted-media-files-YYYYMMDD for files after 19 June 2026.
+
+https://x.com/AI_Migrant
